@@ -1,4 +1,4 @@
-# Welcome to Axis! 🏡
+# Welcome to Axis! 👋
 
 ## About Axis 🛠️
 
