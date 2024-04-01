@@ -1,4 +1,4 @@
-# Welcome to Axis's GitHub Profile! 🏡
+# Welcome to Axis! 🏡
 
 ## About Axis 🛠️
 
